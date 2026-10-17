@@ -1,0 +1,1 @@
+# Yaja-ensurance-S.L.
